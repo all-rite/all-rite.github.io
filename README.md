@@ -1,0 +1,1 @@
+# all-rite.github.io
